@@ -14,9 +14,9 @@
   * 历年考研真题
   * 其他的一些机构的资料
 
-经验贴在我的知乎: (还没开始写)
+[我的经验贴](https://zhuanlan.zhihu.com/p/618153204)
 
-854大佬们的经验贴: https://www.zhihu.com/column/kaoyan-hit
+[854大佬们的经验贴](https://www.zhihu.com/column/kaoyan-hit)
 
 --------------------------------2023.01.08-----------------------
 
